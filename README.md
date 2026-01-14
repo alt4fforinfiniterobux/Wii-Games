@@ -1,4 +1,1 @@
-This will have almost old games ever.
-this will have emulators to play these games.
-if you dont know how to do this i will make a tut showing you how.
-have fun playing!
+i am making a project that will almost have every gamecube game and wii game and a few other games that I like to play. if you dont know how dm me on discord rookster19 or nugget.
